@@ -7,9 +7,9 @@
 
 **:man: 已经助力500W+用户加速全球网络！**
 
-**:arrow_double_down: [iOS 版本链接](https://share.fgsqyug.cn/xgvpn.html?t=t3gu23za)**
+**:arrow_double_down: [iOS 版本链接](http://share.ldvpn.xyz/xgvpn.html?t=t3gu23za)**
 
-**:globe_with_meridians: [访问官方网站](https://share.fgsqyug.cn/xgvpn.html?t=8u5v7led)** 
+**:globe_with_meridians: [访问官方网站](http://share.ldvpn.xyz/xgvpn.html?t=8u5v7led)** 
 
 - - - -
 #### 推荐广告
